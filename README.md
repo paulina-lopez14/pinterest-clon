@@ -4,7 +4,7 @@ ______
 ### La página tiene imágenes de:
 
 - 🐶💟Snoopy.
-- -📚🤓Libros.
+- 📚🤓Libros.
 -🎵🎶Kali Uchis/ Tyler the Creator/ Alvaro Días/ NSQK.
 - 🧶♥️Crochet.
 

@@ -18,11 +18,7 @@ ______
 
 
 ### Vista previa
-![Proyecto](assets/capturaportafolio.png)
-![Proyecto](assets/capturaportafolio2.png)
-![Proyecto](assets/capturaportafolio3.png)
-![Proyecto](assets/capturaportafolio4.png)
-![Proyecto](assets/capturaportafolio5.png)
+![Proyecto](assets/sspinterestclon.p)
 
 ### ¡Espero saber de ti pronto!😊
 **Correo:**

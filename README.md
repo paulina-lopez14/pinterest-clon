@@ -5,7 +5,7 @@ ______
 
 - 🐶💟Snoopy.
 - 📚🤓Libros.
-- 🎵🎶Kali Uchis/ Tyler the Creator/ Alvaro Días/ NSQK.
+- 🎵🎶Kali Uchis/ Tyler the Creator/ Álvaro Díaz/ NSQK.
 - 🧶♥️Crochet.
 
 ### Creado con:
